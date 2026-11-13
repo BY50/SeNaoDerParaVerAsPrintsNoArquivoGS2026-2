@@ -1,0 +1,1 @@
+# SeNaoDerParaVerOMarkdownNoArquivoGS2026-2
